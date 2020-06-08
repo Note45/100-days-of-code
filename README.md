@@ -8,7 +8,8 @@ The challenge consists to code at least one hours every day for the next 100 day
 
 # Twitter Posting
 
-[Day 1](https://twitter.com/ALisboa45/status/1269601904306327552)
+[Day 1](https://twitter.com/ALisboa45/status/1269601904306327552) | 
+[Day 2](https://twitter.com/ALisboa45/status/1269981447496118273)
 
 # Motivation
 
