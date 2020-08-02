@@ -64,7 +64,7 @@ The challenge consists to code at least one hours every day for the next 100 day
 [Day 54](https://twitter.com/ALisboa45/status/1288957914347196416) |
 [Day 55](https://twitter.com/ALisboa45/status/1289340596306546689) |
 [Day 56](https://twitter.com/ALisboa45/status/1289673291343396864) |
-
+[Day 57](https://twitter.com/ALisboa45/status/1289981323117912064) |
 
 # Motivation
 
